@@ -14,3 +14,7 @@ VISIT US HERE (https://mnfcandy.com)
 Scripted by TempllerMNF
 
 SUPPORT US HERE (https://www.buymeacoffee.com/walterloi)
+
+NO ESX or QBCORE BULLSHIT NEEDED
+
+STANDALONE
